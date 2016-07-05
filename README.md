@@ -1,0 +1,2 @@
+# majezon
+o co chodzi
